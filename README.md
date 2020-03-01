@@ -23,7 +23,9 @@ Planning of the North East trip .........
 12, 4:00am: Shillong (Two Night Stay night stay)<br>
 12,13 ...... : Garo Hills, Khasi Hills, CherraPunji, Dawki, Two Villages, Seven Sister Cave<br>
 14, 6:00pm : (Cab ride / bus ride to Guwahati)<br>
+<br><br>
 
+<h2>Maps</h2>
 
-Map1(Full round trip): http://bit.ly/2VyA5E0
+Map1(Full round trip): http://bit.ly/2VyA5E0 <br>
 Map2(Meghalaya round trip): http://bit.ly/39drJFU
