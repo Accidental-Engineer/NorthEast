@@ -26,3 +26,4 @@ Planning of the North East trip .........
 
 
 Map1(Full round trip): http://bit.ly/2VyA5E0
+Map2(Meghalaya round trip): http://bit.ly/39drJFU
